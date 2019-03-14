@@ -1,6 +1,6 @@
 Lets build cool stuff together!
 
-Find me on
+Find me on:
 
 [Linkedin](https://www.linkedin.com/in/krishna-balaga-14908258/)
 
