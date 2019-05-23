@@ -6,7 +6,6 @@ Find me on:
 
 [Twitter](https://twitter.com/Krishnac71)
 
-Please come back on 25th for slides :)
 
 # More Free Goodies ^_^
 
