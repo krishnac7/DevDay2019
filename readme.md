@@ -6,6 +6,7 @@ Find me on:
 
 [Twitter](https://twitter.com/Krishnac71)
 
+Join GPU [Waitlist](https://datasciencex.typeform.com/to/oQg9G7)
 
 # More Free Goodies ^_^
 
